@@ -10,4 +10,4 @@
 
 ## 📫 How to reach me
 
-[✉️ workbazivolyakm@gmail.com](mailto:workbazivolyakm@gmail.com)
+[✉️ bazyvoliakmaksym@gmail.com](mailto:bazyvoliakmaksym@gmail.com)
